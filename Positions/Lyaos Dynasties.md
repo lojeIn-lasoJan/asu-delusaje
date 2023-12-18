@@ -1,0 +1,1 @@
+The Lyaos Dynasties were a series of Dynasties centred around Nuzwha, working as the successor of the [[Positions/Patriarchate of Lyaos]] in the [[Locations/States/Taknitic Empire|Taknitic Empire]]. They would also oversee the [[Locations/States/Qaradash|Monastic realm of Qaradash]], due to the isolationism Qaradash had.

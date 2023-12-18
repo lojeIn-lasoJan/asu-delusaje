@@ -1,0 +1,5 @@
+The 24 Tribes were an ethnic categorisation of tribes before the Century of Tribal Collapse, which includes:
+[[Ethnicities/24 Tribes/Khanei Tribe|Khaney]], [[Ethnicities/24 Tribes/Usaar Tribe|Usaar]], [[Senney Tribe]], [[Lammey Tribe]], [[Occhynti Tribe]], [[Samachian Tribe]], [[Liao Tribe]], [[Ethnicities/24 Tribes/Ghnna tribe|Ghnna]], [[Joedeyn Tribe]], [[Jusce Tribe]], [[Ethnicities/24 Tribes/Lucans Tribe]], [[Ethnicities/24 Tribes/Ellonites Tribe]], [[Maqger Tribe]], [[Miitoe Tribe]], [[Huddey Tribe]], [[Lashan Tribe]], [[Elrenite Tribe]], [[Alranite Tribe]], [[Ethnicities/24 Tribes/Amosi Tribe|Amosi]], [[Fazzho Tribe]], [[Ethnicities/24 Tribes/Vondhah Tribe]], [[Dumzheth Tribe]], [[Ethnicities/24 Tribes/Banite Tribe]], and [[Ismillat Tribe]]. They were based on ethnic,  religious, cultural, and linguistic differences at the time, with some discrepancies in the listings, like splitting the [[Ethnicities/24 Tribes/Ghnna tribe|Ghnna]], or combining the [[Alranite Tribe]] and [[Elrenite Tribe]] as the [[Ethnicities/24 Tribes/Leonoites Tribe|Leonoits Tribe]].
+# Metadata
+## Tags
+#Ethnicity 

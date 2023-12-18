@@ -1,0 +1,8 @@
+the monkey tree is an animal.
+it has splindly arms, each with smaller arms, with smaller "arms", with even smaller extensions, covered in tiny cerations, that shred whatever its trying to eat. it pumps out small amount of acid and toxins. each tooth a small amount of it, but enought to slowly eat it. also their cells are mostly cellulose, so they hold up. Those arms can move around the prey, thus the name. they look like trees, but move their arms like monkey's tails.
+
+the very tips of their "arms" produce tiny pollen, which can spread. they can also collect it, hermaphrodity. once it is collected, they merge, the merged cell multiplies, a bunch of mixing happens with the two pairs of chrosomes in individual cells, and a process starts to occur.
+the "arms" curves around those cells, becomes cellulose and proteins, pretty wood like, and then grows as such around it. thus a tough and rich surrounding. then the ball grows until it is big. it can have millions of those tiny cells. That ball is called a kaśtan.
+the tiny cells compete, and one comes out on top, then eats the surrounding cellulose, and grows into another monkey tree.
+
+monkey trees usually settle on and solid surface they can get to, but can transport themselves. The arms are barren. they only store some water and the cellulose, for support and backup sugar. on their "roots" (arms that hold onto the surface) form tough materials, that attach to the surface, and to the roots. this is where they store their nutrients. these are called wades. these are fundamentally what the kaśtan is made of, but less dense and nutrient rich.

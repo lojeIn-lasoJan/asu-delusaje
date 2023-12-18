@@ -1,0 +1,1 @@
+Celi a Lawozi to Asu Delusaje is a crucial monument of a text. This provides a complete historic and cultural view of the whole of Asu Delusaje across time. It is set in an epic metre, and written in [[Classical Ğosan]].

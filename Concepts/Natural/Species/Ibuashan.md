@@ -1,0 +1,2 @@
+# Introduction
+The Ibuaśan is a family of birds, with distinctive colours, longa necks and length. They would usually be 2m tall. They are a symbol the [[Positions/Lyaos Dynasties|Lyaos Dynasties]]. It often nests on [[Locations/States/Qaradash|Qaradash]]
